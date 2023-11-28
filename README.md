@@ -1,0 +1,1 @@
+# Descobrindo-Ouro-na-Jornada-do-Cliente-Estrat-gias-de-Fideliza-o-Reveladas-atrav-s-da-An-lise-RFM
